@@ -1,0 +1,5 @@
+-  Salut, je suis @JojoXx67
+- Je m’intéresse à la cybersécurité
+- J’apprends actuellement le langage python
+-  je voudrais apprendre la cybersecurité
+-  si des gens veulent m'aider contacter moi a "brefiej@gmail.com"
